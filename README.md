@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @edwinwelling
+Hi, I’m @edwinwelling
 
 Dutch and living in and around Eindhoven
 
